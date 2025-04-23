@@ -16,7 +16,7 @@ Dehydrated vegetables offer a reliable solution to perishable produce, making th
 
 ---
 
-## Request a Sample Report Copy
+Request a Sample Report Copy: https://www.transparencymarketresearch.com/sample/sample.php?flag=S&rep_id=55029
 
 ---
 
