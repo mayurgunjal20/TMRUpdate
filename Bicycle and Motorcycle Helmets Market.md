@@ -26,7 +26,7 @@ A range of notable trends are shaping the future of this market. Smart helmets e
 
 ## Competitive Landscape
 
-The bicycle and motorcycle helmets market is highly competitive and moderately fragmented, with a mix of established global brands and regional players. Key companies such as Shoei Co., Ltd, Vista Outdoor Inc., Dainese S.P.A, HJC Corp., Lazer Sport NV, Arai Helmet Limited, Specialized Bicycle Components, Inc., Studds Accessories Ltd., Manufacturas Tomás, S.A., and Vega Auto Accessories Pvt. Ltd. dominate the landscape. These players are investing heavily in R&D to develop innovative products that meet evolving consumer demands. Expansion of product portfolios through new launches, mergers, strategic partnerships, and acquisitions are key strategies shaping the competitive dynamics. Companies are also strengthening their online presence to tap into the rapidly growing e-commerce market.
+The **bicycle and motorcycle helmets market** is highly competitive and moderately fragmented, with a mix of established global brands and regional players. Key companies such as Shoei Co., Ltd, Vista Outdoor Inc., Dainese S.P.A, HJC Corp., Lazer Sport NV, Arai Helmet Limited, Specialized Bicycle Components, Inc., Studds Accessories Ltd., Manufacturas Tomás, S.A., and Vega Auto Accessories Pvt. Ltd. dominate the landscape. These players are investing heavily in R&D to develop innovative products that meet evolving consumer demands. Expansion of product portfolios through new launches, mergers, strategic partnerships, and acquisitions are key strategies shaping the competitive dynamics. Companies are also strengthening their online presence to tap into the rapidly growing e-commerce market.
 
 ## Future Outlook
 
