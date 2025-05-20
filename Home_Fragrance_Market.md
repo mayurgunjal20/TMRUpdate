@@ -1,9 +1,9 @@
-
+![Home Fragrance Market](https://github.com/user-attachments/assets/87f75425-c7d6-4106-b1ff-476b859822e7)
 # Home Fragrance Market Outlook 2031: Trends, Insights, and Future Prospects
 
-## Overview
+The global **[home fragrance market](https://www.transparencymarketresearch.com/home-fragrance-market.html)** has emerged as a dynamic and fast-evolving sector within the broader consumer goods industry. As people spend more time at home and become increasingly invested in curating comforting, personalized spaces, the role of fragrances has grown significantly. From candles and reed diffusers to aerosols and essential oils, consumers are using a variety of scented products to elevate the ambience of their living spaces. In 2022, the market was valued at **US$ 9.0 billion**, and it is projected to reach **US$ 14.5 billion by 2031**, growing at a **CAGR of 5.4%** during the forecast period (2023–2031). This expansion reflects both increased consumer spending on lifestyle-enhancing products and the continuous innovation brought forth by manufacturers and retailers.
 
-The global **home fragrance market** has emerged as a dynamic and fast-evolving sector within the broader consumer goods industry. As people spend more time at home and become increasingly invested in curating comforting, personalized spaces, the role of fragrances has grown significantly. From candles and reed diffusers to aerosols and essential oils, consumers are using a variety of scented products to elevate the ambience of their living spaces. In 2022, the market was valued at **US$ 9.0 billion**, and it is projected to reach **US$ 14.5 billion by 2031**, growing at a **CAGR of 5.4%** during the forecast period (2023–2031). This expansion reflects both increased consumer spending on lifestyle-enhancing products and the continuous innovation brought forth by manufacturers and retailers.
+**[Request a sample report copy](https://www.transparencymarketresearch.com/sample/sample.php?flag=S&rep_id=85682)**
 
 ## Key Insights
 
