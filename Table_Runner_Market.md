@@ -1,8 +1,8 @@
-
 # Table Runner Market Outlook: A Comprehensive Industry Report 2023–2031
 
-### Overview
-The global table runner market has evolved significantly in recent years, transforming from a modest home décor segment into a vibrant industry driven by lifestyle shifts, aesthetic preferences, and e-commerce expansion. Table runners, once relegated to formal dining or event use, have become staple items in everyday interior styling. Their appeal spans residential homes, hospitality venues, and event management sectors. With consumers increasingly investing in curated living spaces and seasonal themes, the demand for high-quality, customizable, and eco-friendly table runners continues to grow. As of 2022, the market was valued at **USD 1.4 billion**, and it is projected to expand at a **CAGR of 4.9%**, reaching **USD 2.3 billion by 2031**.
+The global **[table runner market](https://www.transparencymarketresearch.com/table-runner-market.html)** has evolved significantly in recent years, transforming from a modest home décor segment into a vibrant industry driven by lifestyle shifts, aesthetic preferences, and e-commerce expansion. Table runners, once relegated to formal dining or event use, have become staple items in everyday interior styling. Their appeal spans residential homes, hospitality venues, and event management sectors. With consumers increasingly investing in curated living spaces and seasonal themes, the demand for high-quality, customizable, and eco-friendly table runners continues to grow. As of 2022, the market was valued at **USD 1.4 billion**, and it is projected to expand at a **CAGR of 4.9%**, reaching **USD 2.3 billion by 2031**.
+
+**[Request a sample report copy](https://www.transparencymarketresearch.com/sample/sample.php?flag=S&rep_id=85756)**
 
 ### Key Insights
 The table runner market is characterized by a mix of traditional textile craftsmanship and modern consumer preferences. A few key insights define the current market landscape:
